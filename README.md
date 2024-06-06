@@ -1,0 +1,2 @@
+-hi, nico robin aquii
+-こんにちは、ニコ・ロビンです
